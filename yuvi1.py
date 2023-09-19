@@ -1,8 +1,6 @@
-visahl kutta ha
+muskan kutta ha
 vishal chuttiya ha
-vihal gaddu ha
-vishal bhosdika ha
-vishal bhoot bda kutta ha
+muskan bhoot bda kutta ha
 vishal chuttiya ha
 vishal lodu ha
-vishal gandu ha
+muskan gandu ha
